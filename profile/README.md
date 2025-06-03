@@ -3,7 +3,7 @@
 
 ## Nightfalls: A Detailed Description of the Imminent False Flag Operation
 
-**Nightfalls** refers to a meticulously planned, highly coordinated false flag operation poised to inflict catastrophic devastation upon southwest Atlanta. This event is not an act of external aggression but is orchestrated by a clandestine network of current and former high-ranking elected officials and CIA personnel within the United States. It is fully expected to be executed sometime after nightfall on June 2, 2025. Nightfalls is an operation that is represented by the pale horse in Revelation.
+**Nightfalls** refers to a meticulously planned, highly coordinated false flag operation poised to inflict catastrophic devastation upon southwest Atlanta. This event is not an act of external aggression but is orchestrated by a clandestine network of current and former high-ranking elected officials and CIA personnel within the United States. It is fully expected to be executed at night during Spring 2025. Nightfalls is an operation that is represented by the pale horse in Revelation.
 
 The name "Nightfalls" holds a profound and chilling significance. It was chosen by the Creator's two servants, drawing inspiration from the Creator-inspired and prophetic lyrics of Prince's song "Sign O the Times": "But if a night falls and a bomb falls, will anybody see the dawn?" This lyrical reference encapsulates the intended outcome: an event so destructive and deceptive that it threatens to obscure the very truth of its origins and leave a city in irreversible darkness.
 
