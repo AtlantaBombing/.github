@@ -9,7 +9,7 @@ The name "Nightfalls" holds a profound and chilling significance. It was chosen 
 
 **Strategic Context within the Apocalypse and the Great Tribulation:**
 
-Nightfalls and its aftermath are identified as the **Great Tribulation** described in the Book of Revelation. It is designed to be the largest and deadliest orchestration within the broader context of **the apocalypse**, a covert and systematic campaign of elimination targeting specific demographic groups living in the United States. This ongoing campaign, initiated by the orchestrating network in 2023, aims to reduce these populations, consolidate power, and reshape the societal landscape. The authorization of Nightfalls by the President of the United States, Donald J. Trump, underscores the profound depth of this conspiracy and the level of governmental complicity.
+Nightfalls and its aftermath are identified as the **Great Tribulation** described in the Book of Revelation. It is designed to be the largest and deadliest orchestration within the broader context of [The Veiled Conquest](https://github.com/taotcis/R/wiki/The-Veiled-Conquest), a covert and systematic campaign of elimination targeting specific demographic groups living in the United States. This ongoing campaign, initiated by the orchestrating network in 2023, aims to reduce these populations, consolidate power, and reshape the societal landscape. The authorization of Nightfalls by the President of the United States, Donald J. Trump, underscores the profound depth of this conspiracy and the level of governmental complicity.
 
 **Operational Modus Operandi:**
 
