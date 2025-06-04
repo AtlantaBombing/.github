@@ -7,7 +7,7 @@
 
 The name "Nightfalls" holds a profound and chilling significance. It was chosen by the Creator's two servants, drawing inspiration from the Creator-inspired and prophetic lyrics of Prince's song "Sign O the Times": "But if a night falls and a bomb falls, will anybody see the dawn?" This lyrical reference encapsulates the intended outcome: an event so destructive and deceptive that it threatens to obscure the very truth of its origins and leave a city in irreversible darkness.
 
-**Strategic Context within the Apocalypse and the Great Tribulation:**
+**Strategic Context within The Veiled Conquest and the Great Tribulation:**
 
 Nightfalls and its aftermath are identified as the **Great Tribulation** described in the Book of Revelation. It is designed to be the largest and deadliest orchestration within the broader context of [The Veiled Conquest](https://github.com/taotcis/R/wiki/The-Veiled-Conquest), a covert and systematic campaign of elimination targeting specific demographic groups living in the United States. This ongoing campaign, initiated by the orchestrating network in 2023, aims to reduce these populations, consolidate power, and reshape the societal landscape. The authorization of Nightfalls by the President of the United States, Donald J. Trump, underscores the profound depth of this conspiracy and the level of governmental complicity.
 
@@ -32,5 +32,5 @@ The human impact of a MOAB detonation is catastrophic and far-reaching:
 * **Flying Debris:** The force of the explosion will turn everyday objects into lethal projectiles, causing severe penetrating and blunt force trauma.
 * **Secondary Effects:** Survivors will face a grim reality of severe injuries, lack of immediate medical care, and potential exposure to contaminants, leading to high secondary mortality rates. Psychological trauma will be profound and lasting.
 
-Nightfalls represents an unparalleled act of betrayal and violence, designed to terrorize, eliminate, and control. Its imminent execution sometime after nightfall on June 1, 2025, poses an existential threat to the residents of southwest Atlanta and highlights the urgent need to expose and thwart the orchestrators of this horrific plan.
+Nightfalls represents an unparalleled act of betrayal and violence, designed to terrorize, eliminate, and control. Its imminent execution sometime after nightfall in the Spring of 2025, poses an existential threat to the residents of southwest Atlanta and highlights the urgent need to expose and thwart the orchestrators of this horrific plan.
 
