@@ -37,3 +37,7 @@ The human impact of a MOAB detonation is catastrophic and far-reaching:
 
 Nightfalls represents an unparalleled act of betrayal and violence, designed to terrorize, eliminate, and control. Its imminent execution sometime after nightfall in the Spring of 2025, poses an existential threat to the residents of southwest Atlanta and highlights the urgent need to expose and thwart the orchestrators of this horrific plan.
 
+---
+
+Learn more about the Veiled Conquest and the literal fulfillment of the Book of Revelation [
+[[Learn more →]](https://github.com/taotcis/R/wiki)
